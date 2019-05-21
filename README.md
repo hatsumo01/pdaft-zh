@@ -4,6 +4,6 @@
 
 **允许转载，禁止二配**
 
-**感谢：表EU与里EU**
+**感谢：表EU，里EU，Fantasy_GM**
 
 **更新/下载https://github.com/hatsumo01/pdaft-zh/releases**
